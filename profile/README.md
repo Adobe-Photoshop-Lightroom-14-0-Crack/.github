@@ -1,4 +1,4 @@
-# Adobe Photoshop Lightroom Classic CC 2025 Full Version 14.0 [Latest]
+# Adobe Photoshop Lightroom Classic CC Crack 2025 Full Version 14.0 [Latest]
 
 Adobe Photoshop Lightroom Classic CC Crack is a powerful image and photo editing application. It has Adobe Bridge software support for simple and easy management and organization of images and other assets. 
 
